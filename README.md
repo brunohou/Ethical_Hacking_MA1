@@ -1,1 +1,1 @@
-# Ethiical_Hacking_MA1
+# Ethical_Hacking_MA1
